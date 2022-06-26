@@ -57,7 +57,6 @@ We use a wristband system for quickly communicating comfort of touching, sexual 
 - ![Black](https://via.placeholder.com/15/000000/000000.png) Black: I have a complete STI test from within the last 3 months, including HIV, Syphilis, and Chlamydia and Gonorrhea tests via urine and oral, anal, and vaginal swabs. Send results to [@maxwellplasmoid](https://t.me/Maxwellplasmoid) before the party to get this band.
 - ![White](https://via.placeholder.com/15/FFFFFF/FFFFFF.png) White: I have an STI test but it’s old or incomplete. Ask about my STI test if you need to.
 
-
 ## Tips for first-timers
 
 Best way to enjoy these things is to jump straight in. Get naked and get sexy. If you want something to happen then you need to ask for it. Sex doesn’t happen spontanously, you need to ask for it. If you’re coming to the party wanting to bottom, come ready for it and make sure to ask. If you want to try out a particular toy or kink, just ask!
