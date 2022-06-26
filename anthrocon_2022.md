@@ -4,9 +4,9 @@
 
 **Time:** Friday 11pm and Sunday 10pm
 
-This a sex party hosted at AnthroCon by [@maxwellplasmoid](https://t.me/Maxwellplasmoid). Party rules, chat rules, and party tips are listed below. You must read the party rules to find the password needed to enter the party. Upholding the party rules is the responsibility of all guests.
+This is a sex party hosted at AnthroCon by [@maxwellplasmoid](https://t.me/Maxwellplasmoid). Party rules, chat rules, and party tips are listed below. You must read the party rules to find the password needed to enter the party. Upholding the party rules is the responsibility of all guests.
 
-[Join the Telegram group](https://t.me/+k7DuqiQdM_FhYjMx)
+[Join the Telegram group](https://t.me/+P1E5iwLtyyJkZTAx)
 
 Contact [@maxwellplasmoid](https://t.me/Maxwellplasmoid) for administrative questions. [@maxwellplasmoid](https://t.me/Maxwellplasmoid) will be unavailable on Telegram during the party.
 
@@ -24,10 +24,6 @@ Contact [@maxwellplasmoid](https://t.me/Maxwellplasmoid) for administrative ques
 **Breaking any of these rules and especially violating the consent of other party guests or endangering the safety of other guests will result in being banned from future events.**
 
 Hosting a sex party is also expensive! If you can, donations (i.e. ~$20) are very much appreciated but not required.
-
-[Telegram group](https://t.me/+k7DuqiQdM_FhYjMx)
-
-This Telegram group is for organizing a sex room party at AnthrCon 2022. Contact @Maxwellplasmoid for administrative questions. @maxwellplasmoid will be unavailable on Telegram during the party.
 
 ## Chat Rules:
 1. You must be 18+. We may ask for ID if at any time we suspect you are underage.
