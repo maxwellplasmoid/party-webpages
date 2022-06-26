@@ -54,7 +54,7 @@ We use a wristband system for quickly communicating comfort of touching, sexual 
 - ![Blue](https://via.placeholder.com/15/0000FF/0000FF.png) Blue: I prefer masculine-presenting partners
 - ![Pink](https://via.placeholder.com/15/f542ec/f542ec.png) Pink: I prefer femine-presenting partners
 - ![Purple](https://via.placeholder.com/15/8400ff/8400ff.png) Purple: I have no preference for my partner’s gender
-- ![Black](https://via.placeholder.com/15/000000/000000.png) Black: I have a complete STI test from within the last 3 months, including HIV, Syphilis, and Chlamydia and Gonorrhea tests via urine and oral, anal, and vaginal swabs. Send results to @maxwellplasmoid who will read through the results and assign your color.
+- ![Black](https://via.placeholder.com/15/000000/000000.png) Black: I have a complete STI test from within the last 3 months, including HIV, Syphilis, and Chlamydia and Gonorrhea tests via urine and oral, anal, and vaginal swabs. Send results to [@maxwellplasmoid](https://t.me/Maxwellplasmoid) before the party to get this band.
 - ![White](https://via.placeholder.com/15/FFFFFF/FFFFFF.png) White: I have an STI test but it’s old or incomplete. Ask about my STI test if you need to.
 
 
